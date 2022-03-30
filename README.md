@@ -16,7 +16,7 @@
 
 - 💭 Ask me about **Anythings**
 
-- 📫 How to reach me **asikrahman4545@gmail.com**
+- 📫 How to reach me **asikkolorob@gmail.com**
 
 - ⚡ Fun fact **I play games and go to the GYM very often.**
 
